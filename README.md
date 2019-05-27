@@ -1,1 +1,1 @@
-# Floaregithub.io
+# Floare.github.io
